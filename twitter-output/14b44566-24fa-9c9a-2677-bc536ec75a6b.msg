@@ -1,0 +1,1 @@
+Right approach to portfolio design @ScalableCapital, but how do you explain VaR to retail clients? #Finnovate https://t.co/Hwks0YodGY

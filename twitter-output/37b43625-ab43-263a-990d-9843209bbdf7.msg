@@ -1,0 +1,1 @@
+RT @EmmingerDirk: looking forward 2 see the recorded demo from @investify_lu #finnovate https://t.co/jMITVEBXAe sadly i´m beeing in #münchen
